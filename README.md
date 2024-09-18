@@ -1,1 +1,1 @@
-# chat-group-inviteee.github.io
+# chat-groupo-inviteee.github.io
